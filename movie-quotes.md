@@ -4,3 +4,5 @@
 
 Yoda: [still looking at Luke] He is too old. Yes. Too old to begin the training.
 Luke Skywalker: But I've learned so much.
+
+President Skroob: Sanders! Sanders! You gotta help me, I don't know what to do. I can't make decisions, I'm a president!

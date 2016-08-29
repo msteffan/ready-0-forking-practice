@@ -11,3 +11,5 @@ President Skroob: "Sanders! Sanders! You gotta help me, I don't know what to do.
 wisdom. Not least of which is how much more enjoyable it is to win." - Uncle Henry Skinner, A Good Year (added by David Novak)
 
 "Mankind was born on Earth. It was never meant to die here." - Cooper (Matthew McConaughey), Interstellar
+
+Joker: Madness, as you know, is a lot like gravity. All it takes is a little push.
